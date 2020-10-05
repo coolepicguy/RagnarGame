@@ -1,2 +1,2 @@
-# Adam-Ragnr-Game
+# Adam-Ragnr-Jonathan-Game
 VeryGoodGame
